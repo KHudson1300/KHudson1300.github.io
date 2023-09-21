@@ -1,5 +1,5 @@
 # Smiley's Webpage
-Welome :)
+Welcome :)
 
 ## Just call me Smiley 
 
