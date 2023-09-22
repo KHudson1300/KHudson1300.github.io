@@ -1,7 +1,7 @@
 # :) Webpage
-We1c0me --- S1ap 0n a Gr!n 
+Welcome --- Slap On A Grin 
 
-## Ju5t ca1l m3 Sm1l3y 
+## Just call me Sm1l3y 
 
                                     ||||                  ||||
                                 |||||||||||            |||||||||||
